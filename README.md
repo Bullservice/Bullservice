@@ -12,21 +12,22 @@ Greatly interested in
 * Android Engineer
 * Reverse
 * Malwares
- 
-  
-Private Bull Android Botnet             
-### https://t.me/Bullandroidbotnet
 
-Working with 
+             Informations
+### https://t.me/Bullandroidbotnet
+Private Bull Android Botnet
+
+             Working with
 ### https://www.ctm360.com
 
-Contact adress 
+            Contact adress 
 ### https://t.me/Bullbotnetservice
+ 
 
 
 
 
-Since 2009.
+
 
 
 
