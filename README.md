@@ -13,16 +13,17 @@ Greatly interested in
 * Reverse
 * Malwares
 
-            Informations
+            
 ### https://t.me/Bullandroidbotnet
 Private Bull Android Botnet
 
-             Working with
+             
 ### https://www.ctm360.com
+Working with
 
-            Contact adress 
+            
 ### https://t.me/Bullbotnetservice
- 
+Contact adress
 
 
 
