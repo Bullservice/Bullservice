@@ -1,4 +1,23 @@
-## Hi there 👋
+### Hi there 👋
+
+Greatly interested in
+
+* C# 
+* C + +
+* Python
+* Visual Basic .NET 
+* PE
+* Windows Internals
+* Android Engineer
+* Reverse
+* Malwares
+
+                 
+### t.me/Bullbotnetservice
+
+
+
+
 
 <!--
 **Bullservice/Bullservice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
