@@ -14,14 +14,19 @@ Greatly interested in
 * Malwares
  
   
-Channel               
-### t.me/Bullbotnetservice
+Private Bull Android Botnet             
+### https://t.me/Bullandroidbotnet
 
 Working with 
 ### https://www.ctm360.com
 
+Contact adress 
+### https://t.me/Bullbotnetservice
 
 
+
+
+Since 2009.
 
 
 
