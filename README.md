@@ -13,7 +13,9 @@ Greatly interested in
 * Reverse
 * Malwares
 
-            
+I am available for partnership for new projects, you can contact me and send me your request projects or projects that you want to put into operation.
+regards..   
+
 ### https://t.me/Bullandroidbotnet
 Private Bull Android Botnet
 
@@ -34,8 +36,7 @@ Contact adress
 
 
 
-### I am available for partnership for new projects, you can contact me and send me your request projects or projects that you want to put into operation.
-### regards.. ### 
+
 
 
 
