@@ -24,7 +24,7 @@ Private Bull Android Botnet
 Working with
 
             
-### https://t.me/Bullbotnetservice
+### bullbotnet@gmail.com
 Contact adress
 
 
